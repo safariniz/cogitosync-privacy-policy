@@ -1,0 +1,1 @@
+# cogitosync-privacy-policy
